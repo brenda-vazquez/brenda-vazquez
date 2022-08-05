@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @brenda-vazquez
+- 👋 Hi, I’m Brenda Paulina Vázquez
 - 👀 I’m interested in paleogenomics, speciation & conservation of biodiversity
 - 🌱 I’m currently an undergraduate student in Genomic Sciences at UNAM Juriquilla
 - 📫 How to reach me: Twitter: @BrendaPaulinaV Email: bpvr2001@gmail.com
